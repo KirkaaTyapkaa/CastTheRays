@@ -16,6 +16,9 @@
 
 ![image](https://github.com/user-attachments/assets/82557e7e-b439-43ac-b167-489e04d13040)
 
+![image](https://github.com/user-attachments/assets/b71c03a0-981d-4813-aab2-155d51e81afd)
+
+
 
 Кінцевий варіант з полігонами:
 
